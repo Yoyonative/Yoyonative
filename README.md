@@ -11,3 +11,10 @@ Yoyonative/Yoyonative is a ✨ special ✨ repository because its `README.md` (t
 You can click the Preview link to take a look at your changes.
 --->
 I'm Joe
+I'm happy to be here
+
+I'm looking for some Doe
+I need me a girl 
+erybody love me
+I can't wait 
+these baddies just throwing themselves at me
